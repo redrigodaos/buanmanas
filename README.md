@@ -1,1 +1,4 @@
-# buanmanas
+#SC INI UPDATE DARI SC SETAN
+```
+ENJOY
+```
